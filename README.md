@@ -1,3 +1,7 @@
+![brimo-huawei-device](https://user-images.githubusercontent.com/130748953/232272229-5e18e0bb-ef68-499a-babc-fe2aa190efc6.jpeg)
+![google-play](https://user-images.githubusercontent.com/130748953/232272231-53a18f04-ebb2-46ac-9aa5-4cc98dba6fb8.png)
+![app-store](https://user-images.githubusercontent.com/130748953/232272235-34f9128c-a230-490c-a5f3-528a07020769.png)
+![f4e411844a41d94929e7e2fca15b003d](https://user-images.githubusercontent.com/130748953/232272238-69c6d2a1-37cc-4f65-ab30-85c67a3ffa40.jpg)
 ![kmc_20230416_104928](https://user-images.githubusercontent.com/130748953/232265852-937e38c8-cd57-428f-be0b-dc3f42eaaf0c.jpg)
 ![kmc_20230416_104928](https://user-images.githubusercontent.com/130748953/232265731-c74a7e18-ce6f-4d5c-8bd4-1807c2e08ba7.jpg)
 ![IMG_20230416_101210](https://user-images.githubusercontent.com/130748953/232265736-202b1bd2-7d4d-498c-b6e1-5d12d1046458.jpg)
